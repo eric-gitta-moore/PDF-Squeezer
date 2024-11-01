@@ -1,5 +1,5 @@
 # PDF-Squeezer
-PDF Squeezer crack from 闲鱼
+PDF Squeezer crack
 
 official: https://www.witt-software.com/pdfsqueezer/
 
